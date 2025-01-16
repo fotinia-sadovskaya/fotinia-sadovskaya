@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @fotinia-sadovskaya
 - 👀 I’m interested in 3D graphics and IT design, and UI/UX designe
-- 🌱 Now I am studying the course “UI / UX. Graphics and interface design" on the Creative Practice platform.
+- 🌱 Now I am studying the course "Digital marketing and e-commerce from Google" and "Google UX Design Professional Certificate" on the Coursera.
 - 💞️ I would like to be part of an experienced team and create great games!
 - 📫 How to reach me [...](https://www.linkedin.com/in/fotinia-sadovskaya-361007216/)
 
